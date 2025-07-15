@@ -1,6 +1,6 @@
 ## Hi, I'm Amala!
 
-🎓 Fourth-year undergraduate student at Case Western Reserve University studying Computer Science with minors in Math and Business Management
+🎓 Recently graduated from Case Western Reserve University with a Bachelor of Science in Computer Science
 
 📱 LinkedIn: www.linkedin.com/in/amalapenumaka
 
